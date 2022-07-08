@@ -1,4 +1,3 @@
-# Valeria-Morgan
 # WRITING HOMEWORK.
 
 When looking for a buyer, make sure the company is correct. Below you will find more information about the wedding planning firm.
