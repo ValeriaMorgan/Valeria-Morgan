@@ -8,7 +8,8 @@ If you want to save some money, try to find a company that doesn't overcharge. I
     When looking for a homework assistance company, be sure to check if the prices they offer are accurate. Remember, you can never blame anyone for getting unworthy homework. Thus, you must be sure of the company you want to hire to do your homework. Below you will get more detailed information about the wedding planning firm. Plus, you'll learn more about their writing processes.
     The process of choosing an official service to help you with your assignments is simple. You only need to visit the company's website and confirm their policy. Often people forget to secure their money and end up losing their money. If you are not interested in your research, you may receive irrelevant reports.
 If you know the cheapest service but they offer discounts, beware. You must be sure that you will receive a task that will not be cheap. After all, you may end up paying for something that doesn't help you. Rather, read the job description in the hiring process. If you meet many candidates with the same qualifications as you, you can confirm if they can handle your homework.
-Useful Resources
+
+# Useful Resources
 
 <a href="https://ko-fi.com/Post/Dissertation-introduction-outline-When-writing-you-S6S3ACTQ2">Dissertation introduction outline When writing your dissertation, ther</a>
 
